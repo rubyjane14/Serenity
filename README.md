@@ -1,1 +1,1 @@
-# Serenity
+# Serenity Diamonds & Jewelries
